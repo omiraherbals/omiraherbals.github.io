@@ -1,1 +1,0 @@
-# omiraherbals.github.io
